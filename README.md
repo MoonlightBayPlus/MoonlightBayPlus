@@ -8,7 +8,7 @@
 6. Kompas TV
 7. Trans TV
 8. iNews TV Jakarta
-9. TVRI DKI Jakarta
+9. TVRI Jakarta & Banten
 10. O Channel
 11. Elshinta TV
 12. MNCTV
